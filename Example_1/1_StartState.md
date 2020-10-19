@@ -13,3 +13,5 @@ Here is a story about a bird who found his lessons in the most unlikely of place
 Now, it may seem that there are no lessons here, but there are. In fact, there are three:
 
 1. Everyone who shits on you is not necessarily 
+2. 
+3. 

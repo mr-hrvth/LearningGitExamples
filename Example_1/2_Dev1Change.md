@@ -14,3 +14,4 @@ Now, it may seem that there are no lessons here, but there are. In fact, there a
 
 1. Everyone who shits on you is not necessarily enemy.
 2. Everyone who gets you out of shit is not necessarily your friend.
+3. 
