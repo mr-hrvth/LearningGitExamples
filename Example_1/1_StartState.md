@@ -12,6 +12,6 @@ Here is a story about a bird who found his lessons in the most unlikely of place
 
 Now, it may seem that there are no lessons here, but there are. In fact, there are three:
 
-1. Everyone who shits on you is not necessarily 
-2. 
+1. Everyone who shits on you is not necessarily enemy.
+2. Everyone who gets you out of shit is not necessarily your friend.
 3. 
